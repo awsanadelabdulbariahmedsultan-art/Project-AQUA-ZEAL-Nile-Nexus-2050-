@@ -114,7 +114,7 @@ To secure continuous processing cycles and insulate heavy machinery from unexpec
 
 * **المهندس والمبتكر الرئيسي:** أوسان عادل عبدالباري أحمد سلطان (AWSAN ADEL ABDULBARI AHMED SULTAN)
 * **رقم الهوية الوطنية / الجواز:** 01010305468 (الجمهورية اليمنية - YEMEN)
-* **الكيان الاعتباري المطور:** أوسان ديو لخدمات التسويق (AWSAN DEW FOR MARKETING SERVICES)
+* **الكيان الاعتباري المطور:** أوسان دو لخدمات التسويق (AWSAN DEW FOR MARKETING SERVICES)
 * **رقم الهاتف للتواصل:** 00967777852433
 
 ---
