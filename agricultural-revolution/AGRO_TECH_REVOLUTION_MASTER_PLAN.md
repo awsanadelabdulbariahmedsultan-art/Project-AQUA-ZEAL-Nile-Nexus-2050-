@@ -88,7 +88,7 @@ To isolate the 2.2-Million-acre mega agricultural blocks from extreme climate va
 
 * **المهندس والمبتكر الرئيسي:** أوسان عادل عبدالباري أحمد سلطان (AWSAN ADEL ABDULBARI AHMED SULTAN)
 * **رقم الهوية الوطنية / الجواز:** 01010305468 (الجمهورية اليمنية - YEMEN)
-* **الكيان الاعتباري المطور:** أوسان ديو لخدمات التسويق (AWSAN DEW FOR MARKETING SERVICES)
+* **الكيان الاعتباري المطور:** أوسان دو لخدمات التسويق (AWSAN DEW FOR MARKETING SERVICES)
 * **رقم الهاتف للتواصل:** 00967777852433
 
 ---
